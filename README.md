@@ -1,2 +1,5 @@
 # ASSIGNMENT1VelmaOBIUUYA
 AI 
+VIDEO DESCRIPTION DOWN BELOW ENJOY
+
+https://go.screenpal.com/watch/cZ100CV81wl
